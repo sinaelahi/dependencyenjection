@@ -1,0 +1,1 @@
+//selam bu yeni modelimiz ogrenme asamasindaki biri icin bunu yaziyorum oyuzden dikatlice oku 
